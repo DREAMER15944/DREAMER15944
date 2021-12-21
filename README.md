@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @DREAMER15944
 - 👀 I’m interested in GAMING 
 - 🌱AGE :16
-UNDERWORLD SMP 
-- 💞️ REAL NAME:JERICHO 
+- Owner of bot:ignite
+- 💞️ REAL NAME:JERICHO
 - 📫 How to reach ME DM ME IN DISCORD 
 
 <!---

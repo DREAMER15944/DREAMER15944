@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @DREAMER15944
+- 👋 Hi, I’m @Dreamer 
 - 👀 I’m interested in GAMING 
 - 🌱AGE :16
-- Owner of bot:ignite
+- 🔥Owner of bot:ignite
 - 💞️ REAL NAME:JERICHO
 - 📫 How to reach ME DM ME IN DISCORD 
 

@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @Dreamer 
 - 👀 I’m interested in GAMING 
 - 🌱AGE :16
-- 🔥Owner of bot:ignite
-- 💞️ REAL NAME:JERICHO
+- 🔥Owner of bot:Eva,Jarvis
+- 💞️ REAL NAME:Unknown 
 - 📫 How to reach ME DM ME IN DISCORD 
 
 <!---

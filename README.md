@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @Dreamer 
+- 👋 Hi, I’m Dreamer 
 - 👀 I’m interested in Codding 
-- 🌱AGE :16
-- 🔥Owner of bot:Eva,Jarvis
+- 🌱AGE :15
+- 🔥Owner of bot:Tezza, jazz music and a Codding discord server 
 - 💞️ REAL NAME:Unknown 
 - 📫 How to reach ME DM ME IN DISCORD 
 
